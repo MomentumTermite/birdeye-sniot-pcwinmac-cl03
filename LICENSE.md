@@ -1,4 +1,4 @@
-# 
+# Avanzado birdeye sniper bot complementos para Mac OS | Gratuito birdeye sniper bot complementos para PC Windows. Con análisis de datos y monitoreo de transacciones — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
